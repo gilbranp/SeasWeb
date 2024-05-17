@@ -8,4 +8,3 @@ Terimakasih
 
 
 WM : GILBRAN ID
-pppppppppbz
